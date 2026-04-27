@@ -1,4 +1,4 @@
-
+Experience escape waves for lucky blocks like never before with escape waves for lucky blocks Script top, the #1 Script. Includes auto-sell and god
 
 
 
